@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <strong>Senior Quality Analyst · Market Research · AI Data Operations</strong><br />
+  <strong>Senior Quality Analyst · Data Research </strong><br />
   Maharashtra, India
 </p>
 
